@@ -108,3 +108,10 @@ Trademarks and trade names used on the Website are registered trademarks of BEHA
 The content published on this Website, including text, graphics, and code, is copyrighted and the sole property of www.behairstore.com. Copyright 2020, BEHAIR. ALL RIGHTS RESERVED. You are granted permission to electronically copy and print hard copy portions of this site solely for placing an order with www.behairstore.com. Any other use, including reproduction, modification, distribution, display, or transmission of the site's content is strictly prohibited. You agree not to alter or remove proprietary notices from downloaded materials.
 
 Except as stated in this Terms of Service or without our express written permission, you agree not to use, publish, reproduce, display, perform, create derivative works from, reverse engineer, decompile, disassemble, distribute, license, transfer, sell, post, enter into a database, upload, transmit, or modify any or all of BEHAIR LLC's intellectual property for any purpose
+
+Contact Us
+400 1st  Ave 911
+Fort Lauderdale, FL 33301
+USA
++1 786 688 7788
+info@behairstore.com
