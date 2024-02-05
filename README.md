@@ -83,7 +83,7 @@ You bear all shipping costs for returns and exchanges. Use a trackable shipping 
 
 Refunds for returns exclude the initial shipping fee, which is non-refundable.
 
-For further inquiries, contact us at info@BEHAIR.com or review our Returns and Exchange Policy HERE.
+For further inquiries, contact us at info@behairstore.com or review our Returns and Exchange Policy HERE.
 
 9. CANCELLATION
 Orders cannot be canceled once confirmed via acceptance email. Orders are typically shipped within 24-48 hours after submission. To cancel an order before acceptance email generation, contact customer service promptly.
@@ -92,7 +92,7 @@ Orders cannot be canceled once confirmed via acceptance email. Orders are typica
 All site users must register. Details are stored to process orders and expedite future purchases. Refer to our Privacy Policy for information management details.
 
 11. OPT-IN/OPT-OUT
-You can modify or delete your registration data anytime, in writing or via email at info@BEHAIR.com.
+You can modify or delete your registration data anytime, in writing or via email at info@behairstore.com.
 
 We may email you about new products, special discounts, or other information. Emails contain an unsubscribe option. Refer to our Privacy Policy for more details.
 
