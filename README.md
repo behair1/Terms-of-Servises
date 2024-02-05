@@ -110,8 +110,12 @@ The content published on this Website, including text, graphics, and code, is co
 Except as stated in this Terms of Service or without our express written permission, you agree not to use, publish, reproduce, display, perform, create derivative works from, reverse engineer, decompile, disassemble, distribute, license, transfer, sell, post, enter into a database, upload, transmit, or modify any or all of BEHAIR LLC's intellectual property for any purpose
 
 Contact Us
+
 400 1st  Ave 911
+
 Fort Lauderdale, FL 33301
 USA
+
 +1 786 688 7788
+
 info@behairstore.com
